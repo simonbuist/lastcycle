@@ -1,0 +1,3 @@
+The various areas of [[Terret]] are connected by a complex network of canals, used to transport good and people throughout the city. The canals are also used as a sewer system, helping somewhat to keep the city clean. In denser residential areas, the canals are overfilled with waste and sewage, making the passage of the gondolas and barges more difficult (and thus more expensive).
+
+All boats on the canal must be licensed by the [[Rivermen's Guild]], an expensive process only open to members of the Guild, keeping the cost of canal transportation high and keeping the [[Regentsbond]] well funded.

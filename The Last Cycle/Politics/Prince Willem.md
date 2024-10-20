@@ -1,0 +1,1 @@
+Willem de Blauw-Terret, son of Prince Klaus de Blauw-Terret, is the ruling prince of [[Terret]]. He is 72 years old, and not thought to be long for the world. He is deeply ill with venereal disease and only rarely makes public appearance. His two children, Wilhelmina and Jan, are in their 30s and rarely speak with him.

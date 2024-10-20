@@ -1,0 +1,1 @@
+The Rivermen's Guild is one of the three most influential guilds in the [[Regentsbond]], part of the Raad. The Rivermen's Guild regulates and licenses boats and their captains on the [[Canals]] of [[Terret]] and pays for their maintenance.

@@ -1,0 +1,5 @@
+Beyond the shelter of [[Terret]] and the cradle of its [[The Three Rivers|rivers]], the land is unwelcoming and mostly bare. Those who live outside of the grip of [[The Contract]] do so at their own peril, carving out a living among poisoned soil and the power of the [[Ashstorms]].
+
+Small communities do exist in the wilds, built near enough to one of the [[The Three Rivers|rivers]] to import water, around dwindling springs, or at the will of a mage powerful enough to provide water. Life is harsh and, for the most part, lawless in these towns, and they're often attacked by [[Bandits]] stealing the few supplies they have. Agriculture exists to varying degrees in these towns, either traditional crops maintained by scarce and expensive water or the abominations of the [[Gardeners]], adapted to grow in modern conditions. Whenever farms of the latter variety are made known to the [[The Church of the Cycle|Church]], holy [[The Inquisition|Inquisitors]] are sent to cleanse the land of the heresy.
+
+Certain rumours claim the existence of the [[Tree City of the North]], an idyllic community deep in the Wilds where nature thrives and the land is kinder.

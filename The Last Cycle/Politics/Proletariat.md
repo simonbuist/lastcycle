@@ -1,0 +1,5 @@
+The working class of [[Terret]] is held down beneath the harsh boot of [[The Contract]], exploited by the [[The Church of the Cycle|Church]], the [[Patriciate|state]], and the [[Regentsbond|wealthy]]. The vast majority of the residents of the city lived in crowded neighbourhoods owned by [[Landlords|landlords]] and are paid starvation wages by guildmembers of the [[Regentsbond]].
+
+While some members of the proletariat hold dreams of freeing themselves and sharing in the wealth of the city, dissidence and organization of labour are persecuted by [[The Inquisition]], as the [[The Church of the Cycle|Church]] maintains that the city must wait in stasis for the rebirth of [[Eindei]].
+
+Outside of [[Terret]], labourers are free from the repression of the [[Regentsbond]], but still to some degree policed by [[The Inquisition]], especially along [[The Three Rivers]] where water is available. However, they suffer under the much harsher conditions of [[The Wilds]].
