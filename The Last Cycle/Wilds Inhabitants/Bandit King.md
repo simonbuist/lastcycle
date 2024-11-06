@@ -1,0 +1,1 @@
+It's not exactly clear who or what he may be, but some rumours claim the existence of an authority recognized by the [[Bandits]] of [[The Wilds]]. Allegedly, he lives in a buried city somewhere to the south, built over a massive aquifer.

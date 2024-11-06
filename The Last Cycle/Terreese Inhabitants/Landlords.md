@@ -1,0 +1,3 @@
+Landlords are evil and bad. The vast majority of [[Proletariat|the citizens]] of [[Terret]] don't own land, being descendants of immigrants who moved into the city during the [[Collapse]] to avoid starvation. Resultingly, most of the residential areas are incredibly densely packed and deeply impoverished. 
+
+The ruling status of the landlords is propped up by all parties of [[The Contract]], with the [[Regentsbond]] funding the [[Civic Guard]], the [[Patriciate]] imposing a draconian penal system through their courts, and the [[The Church of the Cycle|Church]] repressing any revolutionary thought via [[The Inquisition]].

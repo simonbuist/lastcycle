@@ -1,0 +1,3 @@
+The Gardeners are a loose association of druids and other mages (as well as any other sort of miscreant or ne'er-do-well) that live in [[The Wilds]] and heretically oppose [[The Church of the Cycle]]. The Gardeners attempt to adapt life to flourish in [[The Wilds]] against [[Eindei|Eindei's]] will.
+
+[[The Church of the Cycle|The Church]] has formed [[The Inquisition]] to root out this blasphemy. To hide and protect themselves, the Gardeners are completely decentralized and travel alone or in very small groups, with little knowledge of each other, and rarely near [[Terret]]. Magical and technological developments are shared with each other by word of mouth when Gardeners do cross paths.

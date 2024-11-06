@@ -1,0 +1,5 @@
+The Regentsbond is an organization of the merchant guilds of [[Terret]]. They constitute one of the three parties within [[The Contract]] ruling [[Terret|Terret]], along with with the [[Patriciate]] and the [[The Church of the Cycle|Church]]. While many guilds representing various occupations exist within Terret, the [[Bankers' Guild]], the [[Rivermen's Guild]], and the [[Mages' Guild]] are the most prominent among them.
+
+The Regentsbond is made up of two councils, the Kamer and the Raad. The Kamer includes all of the [[Regents]], while the Raad has only three members, the Regents of the [[Bankers' Guild|Bankers]], [[Rivermen's Guild|Riverment]], and the [[Mages' Guild|Mages]]. Legislation regarding guild dues, the [[Civic Guard]], trade disputes, and more are drafted by the Kamer before going to the Raad to be ratified or vetoed.
+
+The Regentsbond functionally maintains a significant amount of [[Terret|Terret's]] aristocracy, by only accepting [[Landlords|landed citizens]] into its guilds. This serves to deprive most residents of the city representation within their government and allows 

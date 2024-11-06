@@ -1,0 +1,1 @@
+Three rivers flow from the [[Great Spring]] in [[Terret]] outwards, providing the city with fresh water. Understood as a gift of [[Eindei]] to provide for their followers until they reawaken. The rivers are called Naare, Oste, and Zuide.

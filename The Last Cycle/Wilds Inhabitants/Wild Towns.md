@@ -1,0 +1,3 @@
+The small villages found in [[The Wilds]], outside the authority of [[The Contract]], are referred to as Wild Towns. Wild Towns are invariably built around a source of drinkable water, but beyond that vary wildly in terms of size, governmental structure (or lack thereof), and economy.
+
+Folks who live in Wild Towns find themselves coming into constant conflict with [[Bandits]], and have different levels of cooperation or animosity towards [[Gardeners]]. Closer to [[Terret]], Wild Towns may have a stronger connection with [[The Church of the Cycle]], potentially relying on its [[The Inquisition|Inquisitors]] for protection from [[Bandits]].
